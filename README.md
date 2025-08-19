@@ -2,4 +2,4 @@
 presale &amp; airdrop website bsc
 
 
-Contact me on Telegram @smartpepe
+Contact me on Telegram @hirejoey
